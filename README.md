@@ -6,3 +6,4 @@ Im an artist, please follow my instagram ! :3 Im cool
 
 < Gachiakuta ! HSR ! Radiohead ! And One >
 
+![Image](https://github.com/user-attachments/assets/33020690-862e-4294-919a-c5111a7d68e2) 
